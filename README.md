@@ -13,6 +13,7 @@ Regardless of the outcome, I’m grateful for the chance to share this effort an
 **Thank you for your time and understanding,**  
 **CØSMIC CODΞX**
 
+---
 
 ## 🛠️ Setup Instructions
 
